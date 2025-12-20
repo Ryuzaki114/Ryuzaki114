@@ -1,5 +1,15 @@
-## Hi there 👋
 
+  Wsup I go online as Doumun dax or Law
+
+  im still working on this its too complicated for my ahh
+
+  
+![Image](https://github.com/user-attachments/assets/b6f2696e-edc4-4ed7-9b0c-633d2b99ccd3) 
+
+link to my tree
+ 
+   
+  https://colormytree.me/2025/01KCVVZEP1528JN5G121K5SA73
 <!--
 **Ryuzaki114/Ryuzaki114** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
