@@ -4,7 +4,7 @@
   im still working on this its too complicated for my ahh
 
   
-![Image](https://github.com/user-attachments/assets/b6f2696e-edc4-4ed7-9b0c-633d2b99ccd3) 
+
 
 link to my tree
  
